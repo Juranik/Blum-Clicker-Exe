@@ -4,3 +4,5 @@
 Поэтому для того, чтобы заполучить данный скрипт, пишите мне в тг - @kalomaze.
 
 
+https://github.com/user-attachments/assets/fa47bfd4-0bdb-48aa-ad4e-dd7f01975610
+
